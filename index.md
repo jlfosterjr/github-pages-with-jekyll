@@ -1,3 +1,9 @@
-# Welcome to my blog
+# Welcome to my home page
 
-I'm glad you are here. I plan to talk about ...
+A little about myself...
+
+Born in Texas
+Lived in Texas, New Mexico and Oklahoma
+Married 24 years - have two adult daughters
+
+...
